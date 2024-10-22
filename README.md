@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @excherubino
 - 👀 I’m interested in music
-- 🌱 I’m currently learning La ci darem la mano duett
-- 💞️ I’m looking to collaborate on singing the duett
+- 🌱 I’m currently learning La ci darem la mano duet
+- 💞️ I’m looking to collaborate on singing the duet
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
